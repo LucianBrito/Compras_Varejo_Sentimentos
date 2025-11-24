@@ -1,0 +1,1 @@
+# Compras_Varejo_Sentimentos
